@@ -11,4 +11,4 @@ categories: Welcome
 
 江河悠远。
 
-![Angkor wat](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.okezone.com%2Fcontent%2F2022%2F06%2F08%2F408%2F2607719%2F11-aturan-berkunjung-ke-angkor-wat-dilarang-berpakaian-seksi-hingga-sedekah-ke-pengemis-XPJJDlt0TD.JPG&imgrefurl=https%3A%2F%2Ftravel.okezone.com%2Fread%2F2022%2F06%2F08%2F408%2F2607719%2F11-aturan-berkunjung-ke-angkor-wat-dilarang-berpakaian-seksi-hingga-sedekah-ke-pengemis&tbnid=qUOx8Em8Lmx-YM&vet=12ahUKEwi9l8TIzt_5AhWXj9gFHfkCBk8QMygCegUIARDFAQ..i&docid=JZphJg4TsyL4jM&w=711&h=514&q=angkor%20wat&ved=2ahUKEwi9l8TIzt_5AhWXj9gFHfkCBk8QMygCegUIARDFAQ)
+![Angkor wat](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0531%2Fae810709j00qtyd1x002oc000rs00ikm.jpg&thumbnail=660x2147483647&quality=80&type=jpg)
